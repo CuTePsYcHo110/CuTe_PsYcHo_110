@@ -1,7 +1,7 @@
-- 👋 Hi, @SakinaOp.
-- 👀 I’m interested in Coding in Python Java.
+- 👋 Hi, I am Sakina .
+- 👀 I’m interested in Coding Python Java and in Arduino (C++) .
 - 🌱 I’m currently learning Python.
-- 📫 How to reach me @Secret_Id_786 on Telegram.
+- 📫 Reach out to me on Telegram : @SaKiNa_s_wOrLd .
 
 <!---
 SakinaOp/SakinaOp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

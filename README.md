@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python.
 - 📫 Reach out to me on Telegram : @CuTe_PsYcHo_110 .
 
-[![Reach Out To Me On Telegram ](t.me/CuTePsYcHo_110)
+[![CuTePsYcHo_110 ](https://t.me/CuTePsYcHo_110)
 
 
 <!---

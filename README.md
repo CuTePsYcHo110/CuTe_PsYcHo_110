@@ -1,14 +1,16 @@
 ## README
-🌸Hi , I am Sakina Saify from Kuwait 🇰🇼 !
+🌸 Hi , I am Sakina Saify from Kuwait 🇰🇼 !
 
-🦋I am intrested in programming Python , Java and C++ [Arduino] .
+🦋 I am intrested in programming Python , Java and C++ [Arduino] .
 
-☘️I am Currently learning Python and C++ .
+☘️ I am Currently learning Python and C++ .
 
 🌼You can reach out to me on Telegram @CuTe_PsYcHo_110
 
-## Contact Me
-[CuTePsYcHo_110](https://t.me/CuTePsYcHo_110)
+## Botz made by me
+[CuTePsYcHo_110](https://t.me/CrAzIe_BoTz)
+
+## Reach out to me
 
 
 

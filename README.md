@@ -3,7 +3,7 @@
 
 🦋 I am a student in class 12th .
 
-☘️ I am Currently learning | intrested in programming Python [Telethon] , Java , [C++ Arduino].
+☘️ I am Currently learning | intrested in programming Python [Telethon] , C++ [Arduino]
 
 🌼You can reach out to me on Telegram @CuTe_PsYcHo_110
 

@@ -8,10 +8,10 @@
 🌼You can reach out to me on Telegram @CuTe_PsYcHo_110
 
 ## Botz made by me
-[CrAzIe_BoTz](https://t.me/CrAzIe_BoTz)
+• [CrAzIe_BoTz](https://t.me/CrAzIe_BoTz)
 
-## More abput me
-[CuTePsYcHo_110](t.me/CuTePsYcHo_110)
+## More about me
+• [CuTePsYcHo_110](t.me/CuTePsYcHo_110)
 
 <!---
 SakinaOp/SakinaOp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

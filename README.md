@@ -1,9 +1,9 @@
 ## README
-🌸 Hi , I am Sakina Saify from Kuwait 🇰🇼 !
+🌸 Hi , I am Sakina from Kuwait 🇰🇼 !
 
-🦋 I am intrested in programming Python , Java and C++ [Arduino] .
+🦋 I am a student in class 12th .
 
-☘️ I am Currently learning Python and C++ .
+☘️ I am Currently learning | intrested in programming Python [Telethon] , Java , C++ [Arduino].
 
 🌼You can reach out to me on Telegram @CuTe_PsYcHo_110
 

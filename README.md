@@ -8,7 +8,7 @@
 🌼You can reach out to me on Telegram @CuTe_PsYcHo_110
 
 ## Contact Me
-![CuTePsYcHo_110](https://t.me/CuTePsYcHo_110)
+[CuTePsYcHo_110](https://t.me/CuTePsYcHo_110)
 
 
 
